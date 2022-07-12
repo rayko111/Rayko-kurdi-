@@ -1,0 +1,2 @@
+# Rayko-kurdi-
+Technology 
